@@ -1,18 +1,18 @@
 <a href="https://win-money.click/?brand=Vulkanbet&source=github.com" target="_blank">
-<img width="295" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Vulkanbet-283593?style=flat-square" />
+<img width="295" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Vulkanbet-FF1493?style=plastic" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=Vulkanbet&source=github.com" target="_blank">
-<img width="167" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Vulkanbet-283593?style=flat-square" />
+<img width="167" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Vulkanbet-FF1493?style=plastic" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=Vulkanbet&source=github.com" target="_blank">
-<img width="199" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Vulkanbet-283593?style=flat-square" />
+<img width="199" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Vulkanbet-FF1493?style=plastic" />
 </a>
 
-![Vulkanbet](33-9996.png)
+![Vulkanbet](334-3719.png)
 
 <h2>🔥 Добро пожаловать в наставление по Официальному Сайту Вулканбет казино!</h2>
 <p>В этом практическом руководстве мы разберем нюансы использования платформы Вулканбет, чтобы вы могли ориентироваться в игровом процессе и бонусных предложениях с максимальной эффективностью.</p>
@@ -180,4 +180,3 @@ FAQ ❓
 </ul>
 
 [Open website](https://win-money.click/?brand=Vulkanbet&source=github.com)
-
